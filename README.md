@@ -1,7 +1,11 @@
 - 👋 Hi, I’m @tyosurbakti
-- 👀 I’m interested in no one 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+
+- 
+
+-just learning
+
+- 
+
 - 📫 How to reach me instagram.com/tyosurbakti_
 
 <!---
